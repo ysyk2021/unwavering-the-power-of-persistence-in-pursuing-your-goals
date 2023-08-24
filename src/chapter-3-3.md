@@ -1,5 +1,3 @@
-How to Align Your Goals with Your Values and Passions
-===========================================================================================
 
 Setting goals is an important step towards achieving success, but it's essential to ensure that our goals align with our values and passions. In this chapter, we will explore how to set goals that matter by aligning them with our values and passions.
 
@@ -37,5 +35,4 @@ Conclusion
 ----------
 
 Setting goals that matter is essential to achieving success. By aligning our goals with our values and passions, we can find purpose, fulfillment, and motivation on the path towards achieving them. Remember to regularly evaluate our goals and adjust them as needed to ensure they continue to align with our values and passions. By setting meaningful goals that align with our values and passions, we can achieve success while staying true to ourselves.
-
 

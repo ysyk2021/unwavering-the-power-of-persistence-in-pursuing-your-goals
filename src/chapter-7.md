@@ -1,5 +1,3 @@
-Chapter 7: Staying Focused and Motivated
-========================================
 
 Staying focused and motivated is essential for achieving our goals, but it can be challenging to maintain discipline and avoid distractions. In this chapter, we will discuss the importance of staying focused and motivated in persistence, techniques for staying disciplined and avoiding distractions, and how to use visualization and positive self-talk to stay motivated.
 

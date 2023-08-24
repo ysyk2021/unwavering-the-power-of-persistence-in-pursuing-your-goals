@@ -1,5 +1,3 @@
-Strategies for Creating an Action Plan to Achieve Your Goals
-================================================================================================
 
 To achieve our goals, we need to create a clear and actionable plan. An action plan helps us break down our goals into manageable steps and track our progress towards achieving them. In this chapter, we will discuss strategies for creating an action plan to achieve your goals.
 

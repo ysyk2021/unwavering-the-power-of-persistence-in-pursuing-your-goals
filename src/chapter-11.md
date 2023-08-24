@@ -1,5 +1,3 @@
-Chapter 11: Conclusion
-======================
 
 In this book, we have explored the power of persistence in pursuing your goals. We have discussed techniques and strategies for developing a persistent mindset, setting meaningful goals, staying motivated, and celebrating success.
 

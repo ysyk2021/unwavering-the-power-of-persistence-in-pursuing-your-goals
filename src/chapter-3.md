@@ -1,5 +1,3 @@
-Chapter 3: Setting Goals that Matter
-====================================
 
 Setting goals is an essential step towards achieving success, but it's important to ensure that our goals are meaningful, aligned with our values and passions, and specific, measurable, achievable, relevant, and time-bound (SMART). In this chapter, we will explore the importance of setting meaningful goals in persistence, techniques for setting SMART goals, and how to align our goals with our values and passions.
 

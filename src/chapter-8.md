@@ -1,5 +1,3 @@
-Chapter 8: Embracing Failure and Learning from Mistakes
-=======================================================
 
 Failure is an inevitable part of pursuing our goals. But rather than seeing failure as a setback, we can learn to embrace it as an opportunity for growth and improvement. In this chapter, we will explore the role of failure in persistence, strategies for embracing failure and learning from mistakes, and how to use feedback to improve your performance.
 

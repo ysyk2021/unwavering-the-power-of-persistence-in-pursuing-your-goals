@@ -1,5 +1,3 @@
-Techniques for Developing a Persistent Mindset
-====================================================================================
 
 Persistence is the ability to continue pursuing our goals in the face of obstacles, setbacks, and challenges. It's an essential trait for achieving success, but it can be challenging to maintain a persistent mindset. In this chapter, we will explore techniques for developing a persistent mindset.
 

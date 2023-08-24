@@ -1,5 +1,3 @@
-The Role of Resilience in Persistence
-=======================================================================
 
 Resilience is the ability to recover quickly from setbacks and challenges. It plays a crucial role in persistence, as setbacks and failures are inevitable on the path to achieving our goals. In this chapter, we will discuss the role of resilience in persistence.
 

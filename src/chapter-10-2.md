@@ -1,5 +1,3 @@
-Different Ways to Celebrate Success and Stay Motivated
-==========================================================================================================
 
 Celebrating our successes and achievements is an important part of staying motivated on the path towards achieving our goals. In this chapter, we will explore different ways to celebrate success and stay motivated.
 

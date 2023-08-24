@@ -1,5 +1,3 @@
-Common Obstacles to Achieving Your Goals
-=========================================================================
 
 Obstacles are a natural and inevitable part of pursuing our goals. In this chapter, we will explore some common obstacles that can prevent us from achieving our goals.
 

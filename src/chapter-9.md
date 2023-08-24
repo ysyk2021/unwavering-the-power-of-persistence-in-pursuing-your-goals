@@ -1,5 +1,3 @@
-Chapter 9: Cultivating a Support System
-=======================================
 
 When pursuing our goals, having a support system can make all the difference. In this chapter, we will discuss the importance of having a support system in persistence, techniques for building a network of mentors, peers, and cheerleaders, and how to ask for help and give support to others.
 
@@ -40,5 +38,4 @@ Conclusion
 ----------
 
 Cultivating a support system is essential for maintaining motivation and persistence when pursuing our goals. By building a network of mentors, peers, and cheerleaders through techniques such as attending networking events, joining communities, and volunteering, we can receive valuable guidance and support. Remember to ask for help and give support to others, being specific, respectful, and mindful of boundaries. With a strong support system in place, we can stay motivated, overcome obstacles, and achieve our goals.
-
 

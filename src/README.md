@@ -1,4 +1,3 @@
-# Introduction
 
 Unwavering: The Power of Persistence in Pursuing Your Goals is a book that offers inspiration and guidance for anyone looking to achieve their goals. Written by Angela Duckworth, the author of the bestselling book Grit, Unwavering explores the concept of persistence and how it can lead to success.
 

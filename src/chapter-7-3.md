@@ -1,5 +1,3 @@
-How to Use Visualization and Positive Self-Talk to Stay Motivated
-===========================================================================================================
 
 Staying focused and motivated is essential to achieving our goals. In this chapter, we will explore how visualization and positive self-talk can help us stay motivated and persistent on the path towards success.
 

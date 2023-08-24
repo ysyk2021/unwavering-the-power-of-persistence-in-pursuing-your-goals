@@ -1,5 +1,3 @@
-What is Persistence?
-==========================================================
 
 Persistence is the ability to continue pursuing your goals in the face of obstacles, setbacks, and challenges. It's the commitment to keep working towards your dreams even when progress is slow or not immediately visible. Being persistent requires dedication, resilience, and determination.
 

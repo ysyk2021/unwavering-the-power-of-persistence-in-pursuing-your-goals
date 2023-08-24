@@ -1,5 +1,3 @@
-The Importance of Having a Support System in Persistence
-=================================================================================================
 
 When pursuing our goals, having a support system is crucial for maintaining motivation and staying persistent. A support system can provide us with encouragement, guidance, and accountability as we work towards achieving our goals. In this chapter, we will discuss the importance of cultivating a support system and how to go about doing so.
 

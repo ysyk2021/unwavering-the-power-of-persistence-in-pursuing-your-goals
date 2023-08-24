@@ -1,5 +1,3 @@
-Chapter 4: Overcoming Obstacles
-===============================
 
 Obstacles are a natural part of pursuing our goals, and it can be challenging to stay persistent in the face of setbacks or challenges. In this chapter, we will explore common obstacles to achieving our goals, strategies for overcoming these obstacles, and how to stay motivated when faced with challenges.
 

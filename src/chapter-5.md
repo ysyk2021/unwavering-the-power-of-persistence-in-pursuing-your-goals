@@ -1,5 +1,3 @@
-Chapter 5: Developing Resilience
-================================
 
 Resilience is a key trait that can help us persist in the face of adversity. In this chapter, we will explore the role of resilience in persistence, techniques for building resilience and bouncing back from setbacks, and how to cultivate a growth mindset.
 

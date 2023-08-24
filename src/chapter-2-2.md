@@ -1,5 +1,3 @@
-The Benefits of Being Persistent in Pursuing Your Goals
-=============================================================================================
 
 Being persistent in pursuing your goals has many benefits, including:
 

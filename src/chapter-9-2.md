@@ -1,5 +1,3 @@
-Techniques for Building a Network of Mentors, Peers, and Cheerleaders
-==============================================================================================================
 
 Having a support system is essential for maintaining motivation and persistence when pursuing our goals. In this chapter, we will discuss techniques for building a network of mentors, peers, and cheerleaders to support us on our journey.
 
@@ -36,5 +34,4 @@ Conclusion
 ----------
 
 Building a support system is essential for maintaining motivation and persistence when pursuing our goals. By identifying potential mentors, peers, and cheerleaders, building relationships with them, and nurturing those relationships over time, we can cultivate a strong support system. Remember to be proactive, listen actively, offer value, be open to feedback, stay in touch, show gratitude, and celebrate success. With a strong support system in place, you'll be well on your way to achieving your goals.
-
 

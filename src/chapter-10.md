@@ -1,5 +1,3 @@
-Chapter 10: Celebrating Success and Moving Forward
-==================================================
 
 Achieving our goals requires persistence, hard work, and dedication. It's important to take time to celebrate our achievements and reflect on our journey. In this chapter, we will discuss the importance of celebrating success, different ways to celebrate, and how to use your successes as a springboard for future goals.
 

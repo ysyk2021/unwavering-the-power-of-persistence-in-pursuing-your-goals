@@ -1,5 +1,3 @@
-How to Stay Motivated When Faced with Challenges
-=================================================================================
 
 Obstacles are a natural part of pursuing our goals, and it can be challenging to stay motivated when faced with setbacks or challenges. In this chapter, we will explore strategies for staying motivated when facing obstacles.
 

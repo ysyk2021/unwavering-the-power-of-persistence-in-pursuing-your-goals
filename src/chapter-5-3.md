@@ -1,5 +1,3 @@
-How to Cultivate a Growth Mindset
-===================================================================
 
 Resilience is the ability to bounce back from setbacks and failures. It's an essential trait for developing persistence in pursuing our goals. One of the key ways to develop resilience is by cultivating a growth mindset. In this chapter, we will discuss what a growth mindset is and how to cultivate it.
 

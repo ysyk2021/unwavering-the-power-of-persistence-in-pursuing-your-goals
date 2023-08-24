@@ -1,5 +1,3 @@
-How to Use Feedback to Improve Your Performance
-========================================================================================================
 
 Failure and mistakes are inevitable when pursuing our goals. However, it's how we respond to failure that determines our success. In this chapter, we will discuss the importance of embracing failure and learning from mistakes, and how to use feedback to improve your performance.
 

@@ -1,5 +1,3 @@
-The Importance of Celebrating Achievements in Persistence
-=============================================================================================================
 
 Celebrating our successes and achievements is an important part of maintaining persistence on the path towards achieving our goals. In this chapter, we will explore the importance of celebrating achievements in persistence and how to move forward after reaching a goal.
 

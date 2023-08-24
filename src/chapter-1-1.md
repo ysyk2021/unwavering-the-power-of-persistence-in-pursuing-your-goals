@@ -1,5 +1,3 @@
-Purpose of the Book
-============================================
 
 The purpose of this book is to explore the power of persistence in pursuing your goals. We all have dreams and aspirations, but often the road to success is filled with obstacles, setbacks, and challenges that can make it difficult to stay motivated and committed towards achieving our goals.
 

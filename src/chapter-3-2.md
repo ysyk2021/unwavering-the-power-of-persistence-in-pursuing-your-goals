@@ -1,5 +1,3 @@
-Techniques for Setting SMART Goals
-========================================================================
 
 Setting goals is an essential step towards achieving success, but it's important to ensure that our goals are specific, measurable, achievable, relevant, and time-bound (SMART). In this chapter, we will explore techniques for setting SMART goals.
 

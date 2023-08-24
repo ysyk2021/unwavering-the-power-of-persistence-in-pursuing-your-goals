@@ -1,5 +1,3 @@
-How to Break Down Your Goals into Manageable Steps
-======================================================================================
 
 To achieve our goals, we need to create a clear and actionable plan. An action plan helps us break down our goals into manageable steps and track our progress towards achieving them. In this chapter, we will discuss how to break down your goals into manageable steps.
 

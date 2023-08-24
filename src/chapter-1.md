@@ -1,5 +1,3 @@
-Chapter 1: Introduction
-=======================
 
 Purpose of the Book
 -------------------

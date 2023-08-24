@@ -1,5 +1,3 @@
-How to Ask for Help and Give Support to Others
-=======================================================================================
 
 Having a support system is essential for maintaining motivation and persistence when pursuing our goals. In this chapter, we will discuss how to ask for help and give support to others when cultivating a support system.
 
