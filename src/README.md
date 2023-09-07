@@ -8,3 +8,7 @@ Whether you're trying to start a new business, pursue a creative passion, or ach
 By reading Unwavering, you'll learn how to cultivate an unwavering mindset, stay disciplined and focused, and overcome obstacles along the way. Whether you're just starting out on your journey or looking to enhance your existing skills, Unwavering is an essential resource for anyone looking to achieve their goals and live a fulfilling life.
 
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
+
+Please Buy Me a Coffee to support us if you think this book is valuable to you. click this link:
+
+https://www.buymeacoffee.com/minghaizheng

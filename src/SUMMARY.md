@@ -42,3 +42,4 @@
   - [How to use your successes as a springboard for future goals](chapter-10-3.md)
 - [Conclusion](conclusion.md)
 - [Contacts](contacts.md)
+- [Our Other Books](other-books.md)
