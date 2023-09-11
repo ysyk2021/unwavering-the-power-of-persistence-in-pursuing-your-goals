@@ -1,5 +1,4 @@
-Chapter 4: How to Align Your Goals with Your Values and Passions
-================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 *Introduction* In this chapter of "Unwavering: The Power of Persistence in Pursuing Your Goals," we will explore the importance of aligning your goals with your values and passions. When your goals are in harmony with what you truly value and are passionate about, your motivation and persistence become unstoppable. By understanding how to align these key elements, you can create a powerful foundation for pursuing your goals with unwavering dedication.
 

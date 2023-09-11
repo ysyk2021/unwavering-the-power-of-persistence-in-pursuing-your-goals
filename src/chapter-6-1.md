@@ -1,5 +1,4 @@
-Chapter 4: Strategies for Creating an Action Plan to Achieve Your Goals
-=======================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 *Introduction* In this chapter of "Unwavering: The Power of Persistence in Pursuing Your Goals," we will explore strategies for creating an action plan that will effectively guide you towards achieving your goals. An action plan serves as a roadmap, outlining the specific steps you need to take to make progress towards your aspirations. This chapter provides practical techniques and insights to help you develop a well-defined action plan that propels you towards success.
 

@@ -1,5 +1,4 @@
-Chapter 10: Techniques for Building a Network of Mentors, Peers, and Cheerleaders
-=================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 *Introduction* In this chapter of "Unwavering: The Power of Persistence in Pursuing Your Goals," we will explore effective techniques for building a network of mentors, peers, and cheerleaders. A strong support system is instrumental in fostering unwavering persistence and achieving remarkable success. By understanding and implementing these techniques, you can create a valuable network that supports, guides, and uplifts you on your journey towards your goals.
 

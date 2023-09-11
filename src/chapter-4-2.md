@@ -1,5 +1,4 @@
-Chapter 8: Strategies for Overcoming Obstacles
-==============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 *Introduction* In this chapter of "Unwavering: The Power of Persistence in Pursuing Your Goals," we will explore strategies for effectively overcoming obstacles that may arise on your path to achieving your goals. Obstacles are inevitable, but they should never deter you from persisting in the pursuit of your aspirations. This chapter provides practical techniques and insights to help you navigate and overcome various challenges along the way.
 

@@ -1,5 +1,4 @@
-Chapter 6: How to Break Down Your Goals into Manageable Steps
-=============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 *Introduction* In this chapter of "Unwavering: The Power of Persistence in Pursuing Your Goals," we will explore the importance of breaking down your goals into manageable steps. Setting ambitious goals is essential, but without a clear plan and actionable steps, they can feel overwhelming and unattainable. This chapter provides practical strategies and insights on how to effectively break down your goals into smaller, achievable tasks, empowering you to persistently pursue your aspirations.
 

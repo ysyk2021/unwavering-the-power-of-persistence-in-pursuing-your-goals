@@ -1,5 +1,4 @@
-Chapter 8: Common Obstacles to Achieving Your Goals
-===================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 *Introduction* In this chapter of "Unwavering: The Power of Persistence in Pursuing Your Goals," we will explore common obstacles that individuals face on their journey towards achieving their goals. Understanding and anticipating these challenges is crucial for developing strategies to overcome them. This chapter provides insights and practical techniques to help you navigate and overcome the hurdles that may arise along the path to success.
 

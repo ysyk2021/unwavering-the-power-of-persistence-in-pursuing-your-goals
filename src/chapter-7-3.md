@@ -1,5 +1,4 @@
-Chapter 7: How to Use Visualization and Positive Self-Talk to Stay Motivated
-============================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 *Introduction* In this chapter of "Unwavering: The Power of Persistence in Pursuing Your Goals," we will delve into the techniques of visualization and positive self-talk to enhance and maintain your motivation. Visualization and positive self-talk are powerful tools that can help you stay focused, boost confidence, and reinforce your commitment to persistence. By harnessing the power of your mind, you can cultivate unwavering motivation on your journey towards achieving your goals.
 

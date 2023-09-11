@@ -1,5 +1,4 @@
-Chapter 8: The Importance of Celebrating Achievements in Persistence
-====================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 *Introduction* In this chapter of "Unwavering: The Power of Persistence in Pursuing Your Goals," we will explore the significance of celebrating achievements in the journey of persistence. Celebration is not just a momentary act; it is a powerful tool that fuels motivation, boosts confidence, and reinforces a positive mindset. By understanding the importance of celebrating achievements, you can enhance your persistence and propel yourself towards even greater success.
 

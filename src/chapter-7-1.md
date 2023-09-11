@@ -1,5 +1,4 @@
-Chapter 10: The Importance of Staying Focused and Motivated in Persistence
-==========================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 *Introduction* In this chapter of "Unwavering: The Power of Persistence in Pursuing Your Goals," we will explore the significance of staying focused and motivated while practicing persistence. Maintaining focus and motivation is crucial for overcoming challenges, staying on track, and achieving long-term success. This chapter provides practical strategies and insights to help you cultivate unwavering focus and sustain high levels of motivation throughout your journey.
 

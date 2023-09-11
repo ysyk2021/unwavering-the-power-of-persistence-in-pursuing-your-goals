@@ -1,5 +1,4 @@
-Chapter 6: How to Stay Motivated When Faced with Challenges
-===========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 *Introduction* In this chapter of "Unwavering: The Power of Persistence in Pursuing Your Goals," we will explore strategies for staying motivated when faced with challenges. Challenges are inevitable on the journey towards achieving your goals, and maintaining motivation during difficult times is crucial for persevering and overcoming obstacles. This chapter provides practical techniques and insights to help you stay motivated and resilient in the face of challenges.
 

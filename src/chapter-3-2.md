@@ -1,5 +1,4 @@
-Chapter 3: Techniques for Setting SMART Goals
-=============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 *Introduction* In this chapter of "Unwavering: The Power of Persistence in Pursuing Your Goals," we will explore the techniques for setting SMART goals. SMART is an acronym that stands for Specific, Measurable, Achievable, Relevant, and Time-bound. By utilizing these techniques, you can create well-defined goals that provide clarity, focus, and a roadmap for your persistence towards success.
 

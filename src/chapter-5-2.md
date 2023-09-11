@@ -1,5 +1,4 @@
-Chapter 8: Techniques for Building Resilience and Bouncing Back from Setbacks
-=============================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 *Introduction* In this chapter of "Unwavering: The Power of Persistence in Pursuing Your Goals," we will explore practical techniques to build resilience and effectively bounce back from setbacks. Resilience is a key quality that allows individuals to stay persistent in the face of adversity, challenges, and temporary failures. By developing the ability to bounce back, you can maintain your motivation, learn from setbacks, and continue progressing towards your goals with unwavering determination.
 

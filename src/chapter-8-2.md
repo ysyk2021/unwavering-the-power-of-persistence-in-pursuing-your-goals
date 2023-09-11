@@ -1,5 +1,4 @@
-Chapter 12: Strategies for Embracing Failure and Learning from Mistakes
-=======================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 *Introduction* In this chapter of "Unwavering: The Power of Persistence in Pursuing Your Goals," we will explore strategies for embracing failure and learning from mistakes. Failure is an inevitable part of any journey towards success, and how we respond to it can greatly impact our ability to persist and achieve our goals. By adopting the right mindset and implementing effective strategies, we can turn failures into valuable learning experiences and use them as stepping stones towards unwavering persistence.
 

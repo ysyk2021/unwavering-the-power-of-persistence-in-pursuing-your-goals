@@ -1,5 +1,4 @@
-Chapter 9: How to Cultivate a Growth Mindset
-============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 *Introduction* In this chapter of "Unwavering: The Power of Persistence in Pursuing Your Goals," we will explore practical strategies and techniques to cultivate a growth mindset. A growth mindset is essential for developing resilience, embracing challenges, and ultimately fostering unwavering persistence. By adopting a growth mindset, you can unlock your potential, overcome obstacles, and continuously grow on your journey towards success.
 

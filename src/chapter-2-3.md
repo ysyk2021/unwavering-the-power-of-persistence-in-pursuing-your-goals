@@ -1,5 +1,4 @@
-Chapter 5: Techniques for Developing a Persistent Mindset
-=========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 *Introduction* In this chapter of "Unwavering: The Power of Persistence in Pursuing Your Goals," we will explore techniques for developing a persistent mindset. Cultivating a persistent mindset is essential for staying committed to your goals, overcoming challenges, and achieving long-term success. This chapter provides practical strategies and insights to help you strengthen your mental resilience and foster a mindset that supports unwavering persistence.
 

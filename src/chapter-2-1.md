@@ -1,5 +1,4 @@
-Chapter 3: What is Persistence?
-===============================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 *Introduction* In this chapter of "Unwavering: The Power of Persistence in Pursuing Your Goals," we will explore the concept of persistence and its significance in achieving your goals. Persistence is a vital quality that separates those who succeed from those who give up. Understanding what persistence truly means empowers you to harness its power and apply it to your journey towards success.
 

@@ -1,5 +1,4 @@
-Chapter 11: How to Ask for Help and Give Support to Others
-==========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 *Introduction* In this chapter of "Unwavering: The Power of Persistence in Pursuing Your Goals," we will explore the art of asking for help and giving support to others. Recognizing when you need assistance and being able to seek it effectively is crucial for unwavering persistence. Additionally, offering support to those around you creates a reciprocal relationship that strengthens your network and fosters collective success. By mastering the skill of asking for help and providing support, you can enhance your ability to persist and achieve remarkable results.
 

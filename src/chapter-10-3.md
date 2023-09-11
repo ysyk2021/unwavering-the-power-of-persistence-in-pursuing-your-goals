@@ -1,5 +1,4 @@
-Chapter 6: How to Use Your Successes as a Springboard for Future Goals
-======================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 *Introduction* In this chapter of "Unwavering: The Power of Persistence in Pursuing Your Goals," we will explore the strategies and mindset needed to use your successes as a springboard for future goals. Building upon your achievements creates momentum, boosts confidence, and fosters unwavering persistence. By understanding how to leverage your successes, you can propel yourself towards even greater accomplishments.
 

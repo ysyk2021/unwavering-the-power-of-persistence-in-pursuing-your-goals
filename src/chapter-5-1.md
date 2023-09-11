@@ -1,5 +1,4 @@
-Chapter 6: The Role of Resilience in Persistence
-================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 *Introduction* In this chapter of "Unwavering: The Power of Persistence in Pursuing Your Goals," we will explore the vital role that resilience plays in the journey of persistence. Resilience is the ability to bounce back from setbacks, adapt to challenges, and maintain a steadfast focus on your goals. Developing resilience is crucial for staying persistent in the face of adversity, overcoming obstacles, and ultimately achieving remarkable success.
 

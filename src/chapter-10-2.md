@@ -1,5 +1,4 @@
-Chapter 7: Different Ways to Celebrate Success and Stay Motivated
-=================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 *Introduction* In this chapter of "Unwavering: The Power of Persistence in Pursuing Your Goals," we will explore various ways to celebrate success and stay motivated on your journey towards achieving your goals. Celebration not only acknowledges your accomplishments but also fuels your motivation and reinforces a positive mindset. By understanding different methods to celebrate success, you can maintain unwavering persistence and propel yourself towards even greater achievements.
 

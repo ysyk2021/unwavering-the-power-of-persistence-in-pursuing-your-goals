@@ -1,5 +1,4 @@
-Chapter 10: Techniques for Tracking Progress and Adjusting Your Plan
-====================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 *Introduction* In this chapter of "Unwavering: The Power of Persistence in Pursuing Your Goals," we will explore techniques for effectively tracking your progress and making necessary adjustments to your plan. Monitoring your progress is crucial for maintaining motivation, staying on track, and ensuring that you are making meaningful strides towards your goals. This chapter provides practical strategies and insights to help you track your progress effectively and adapt your plan as needed.
 

@@ -1,5 +1,4 @@
-Chapter 9: The Importance of Having a Support System in Persistence
-===================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 *Introduction* In this chapter of "Unwavering: The Power of Persistence in Pursuing Your Goals," we will explore the significance of having a support system in the journey of persistence. Building and maintaining a strong support system is essential for overcoming challenges, staying motivated, and fostering unwavering determination. By understanding the importance of a support system, you can enhance your ability to persist and achieve remarkable success.
 

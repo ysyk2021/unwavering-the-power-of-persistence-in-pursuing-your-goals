@@ -1,5 +1,4 @@
-Chapter 5: The Importance of Setting Meaningful Goals in Persistence
-====================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 *Introduction* In this chapter of "Unwavering: The Power of Persistence in Pursuing Your Goals," we will delve into the significance of setting meaningful goals in the journey of persistence. Meaningful goals provide a sense of purpose, ignite passion, and fuel unwavering determination. By understanding why meaningful goals are crucial, you can align your efforts with what truly matters to you and unlock the power of persistence.
 

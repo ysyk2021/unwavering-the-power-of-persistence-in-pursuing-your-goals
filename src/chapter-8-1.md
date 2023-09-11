@@ -1,5 +1,4 @@
-Chapter 13: The Role of Failure in Persistence
-==============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 *Introduction* In this chapter of "Unwavering: The Power of Persistence in Pursuing Your Goals," we will explore the crucial role that failure plays in the journey towards unwavering persistence. Often seen as a setback or an obstacle, failure is an essential component of the growth and development process. By understanding and embracing the role of failure, you can harness its power to fuel your persistence and ultimately achieve remarkable results.
 
